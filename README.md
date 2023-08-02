@@ -1,0 +1,1 @@
+# namazu.github.io
